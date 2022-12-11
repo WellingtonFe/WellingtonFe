@@ -1,4 +1,4 @@
-### Olá! Eu sou Wellington Junior
+### Olá! Eu sou Wellington Junior 👋
 ##
 
 <div>
